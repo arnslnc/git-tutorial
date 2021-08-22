@@ -1,1 +1,1 @@
-Lance Aranas
+gwapo si Lance Aranas
