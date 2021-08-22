@@ -1,1 +1,1 @@
-gwapo si Lance Aranas
+gwapo si Lance Aranas hehe xD
